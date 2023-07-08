@@ -1,1 +1,1 @@
-there were 3 pigs who wanted to live independently, they built diffferent houses. a wolf knocked them down. they all went to the brick house and lived happily
+there were 3 pigs who wanted to live independently, they built diffferent houses. a wolf tried to knocked them down but was only able to blow two houses. they all went to the brick house which the wolf could not blow away and lived happily
